@@ -7,6 +7,5 @@ Utilizo esse espaço para minha organização e compartilhamento dos meu projeto
 
 Você pode entrar em contato comigo 📫
 pedrux444@email.com
-
 @24k.snts
 ![](https://media.giphy.com/media/Cmr1OMJ2FN0B2/giphy.gif)
